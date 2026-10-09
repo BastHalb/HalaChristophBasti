@@ -6,3 +6,4 @@ Plan B, Silvester am Strand: Sansibar mit All inclusive inklusive Cocktails, ab 
 Wasservilla: Im Dezember mit 3.000 € leider kaum möglich. Höchstens ein paar Nächte als Upgrade wären drin.
 
 Welcher Plan spricht dich mehr an? Dann vertiefe ich den.
+Ist wer da?
