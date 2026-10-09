@@ -4,4 +4,4 @@ Plan A, dein Traum: Malediven etwa vom 1. bis 12.12.2027, vor den Festtagspreise
 Plan B, Silvester am Strand: Sansibar mit All inclusive inklusive Cocktails, ab Wien über Lidl Reisen Österreich. Geschätzt 2.300–3.000 € pro Person.
 Wasservilla: Im Dezember mit 3.000 € leider kaum möglich. Höchstens ein paar Nächte als Upgrade wären drin.
 
-Welcher Plan spricht dich mehr an? Dann vertiefe ich den.
+Welcher Plan spricht dich mehr an? Dann vertiefe ich den....
